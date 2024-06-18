@@ -7,4 +7,4 @@ meu nome é Ricardo pereira
 - utilizo esse espaço para minha organização e compartilhamento dos meu projetos dessenvolvidos
 
 
-![](https://media1.tenor.com/m/5a9zox9ZLZQAAAAC/taverna-do-kurama.gif)
+ ![](https://media1.tenor.com/m/QcnDsdZL6v8AAAAC/bnha-kirishima.gif ) ![](https://media1.tenor.com/m/bsEk4UC5ytcAAAAC/kirishima-eijiro-bakugo-katsuki.gif)  
